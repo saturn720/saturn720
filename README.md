@@ -8,6 +8,10 @@
 ──
  ⠀ ⠀ ⠀   ⠀⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀   ⠀ --------------------------------------------------------------------------------------------------------- ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀  ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀  ⠀ ⠀ ⠀⠀   ⠀ ⠀ ⠀ ⠀ ⠀⠀   ⠀  [ata](https://lovestrucken.atabook.org) ⠀ ⠀ ⠀ ⠀  ⠀ [other links soon.](url)
+<details>
+<summary>beautiful huzz thx marryme.</summary>
+♡ Danny/Newfag
+</details>
 <details> 
 <summary>SMT</summary>
 ♡ Wifies . ♡ Vani
@@ -16,7 +20,4 @@
 <summary>oomfies</summary>
 ♡ Parker . ♡ Madeleine
 </details>
-<details>
-<summary>secret third thing</summary>
-♡ Danny/Newfag
-</details>
+
