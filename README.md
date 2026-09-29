@@ -12,12 +12,8 @@
 <summary>beautiful huzz thx marryme.</summary>
 ♡ Danny/Newfag
 </details>
-<details> 
-<summary>SMT</summary>
-♡ Wifies . ♡ Vani
-</details>
 <details>
 <summary>oomfies</summary>
-♡ Parker . ♡ Madeleine
+♡ Parker . ♡ Madeleine . ♡ Vani
 </details>
 
